@@ -1,7 +1,6 @@
 # illslickneverdie
 จะเป็นจะตายก็ไม่เป็นไรให้ผมได้ลองรัก
 https://youtu.be/SKNpJamMvcw?si=Zt5VNloltSmyvm7k ฝากดรีพอตหน่อย
-<<<<<<< HEAD
 เพลงออกจาดีน้าา ☺️
 some body was praying to the wrong god
 คนดีเธอเหนื่อยมั้ยแค่อยากให้ลองพัก
